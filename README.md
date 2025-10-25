@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ggHimanshu
-- 👀 I’m interested in ...this shit 
-- 🌱 I’m currently learning ...this shit
+- 👀 I’m interested in ...this shiss 
+- 🌱 I’m currently learning ...this shiss
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
